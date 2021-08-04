@@ -8,5 +8,7 @@
      ⚫ Reading (Specially Science Fiction) 📚.
      ⚫ Workout 💥.
      ⚫ Appreciate the art.
+
+Born in LATAM, But I am a Settler of the World 🗺️.
      
 
