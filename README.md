@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... Anything don't matter. 
 - 📫 How to reach me ... Send me an email albertoornelasdev@gmail.com
 - 🚀 My hobbies are not many:  
-     ⚫ Listening Hip-Hop/Jazz/Blues/Rock/Electro 🎵. 
+     ⚫ Listening Hip-Hop/Symphonies/Jazz/Blues/Rock/Electro 🎵. 
      ⚫ Reading (Specially Science Fiction) 📚.
      ⚫ Workout 💥.
      ⚫ Appreciate the art.
