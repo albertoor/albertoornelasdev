@@ -9,6 +9,8 @@
      ⚫ Workout 💥.
      ⚫ Appreciate the art.
 
-Born in LATAM, But I am a Settler of the World 🗺️.
+Born in LATAM, Pero soy poblador del Mundo 🗺️.
+
+
      
 
