@@ -8,6 +8,7 @@
      ⚫ Reading (Specially Science Fiction) 📚.
      ⚫ Workout 💥.
      ⚫ Appreciate the art.
+- My old github account: @aerokroos
 
 Born in LATAM, Pero soy poblador del Mundo 🗺️.
 
