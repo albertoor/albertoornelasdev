@@ -5,7 +5,7 @@
 - 📫 How to reach me ... Send me an email albertoornelasdev@gmail.com
 - 🚀 My hobbies are not many:  
      ⚫ Listening Hip-Hop/Symphonies/Jazz/Blues/Rock/Electro 🎵. 
-     ⚫ Reading (Specially Science Fiction) 📚.
+     ⚫ Reading (Specially Philosophy and Science Fiction) 📚.
      ⚫ Workout 💥.
      ⚫ Appreciate the art.
 - My old github account: @aerokroos
