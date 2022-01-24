@@ -10,7 +10,8 @@
      ⚫ Appreciate the art.
 - My old github account:https://github.com/aerokroos
 
-[![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=albertoornelasdev)]
+[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=albertoornelasdev)](https://github.com/albertoornelasdev/github-readme-stats)
+
 
 
 
