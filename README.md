@@ -10,12 +10,6 @@
      ⚫ Appreciate the art.
 - My old github account:https://github.com/aerokroos
 
-*.md linguist-vendored=false
-*.md linguist-generated=false
-*.md linguist-documentation=false
-*.md linguist-detectable=true
-
-
 
      
 
