@@ -10,7 +10,7 @@
      ⚫ Appreciate the art.
 - My old github account:https://github.com/aerokroos
 
-[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=albertoornelasdev)]
+
 
 
 
